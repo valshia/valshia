@@ -1,7 +1,7 @@
 ### About me
 - Japanese netizen
 - Main job: AI engineer and researcher
-- Side job: Radio operator / Simp for VTuber (Hololive)
+- Hobby: Radio operator / Simp for VTuber (Hololive) / Music composer / Video creator / etc
 
 
 ### Get in touch with me
